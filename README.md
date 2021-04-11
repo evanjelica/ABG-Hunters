@@ -1,6 +1,12 @@
-# ABG-Hunters
+# Project: ABG Hunters
 🧋🧋🧋🧋🧋🧋🧋🧋🧋🧋🧋🧋🧋🧋🧋🧋🧋🧋
 
-Coming hopefully soon™ in August
+Web app?
+
+Mobile?
+
+*Who knows.*
+
+**Coming hopefully soon™ in August**
 
 🧋🧋🧋🧋🧋🧋🧋🧋🧋🧋🧋🧋🧋🧋🧋🧋🧋🧋
